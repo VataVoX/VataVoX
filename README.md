@@ -1,1 +1,2 @@
-our adventure is began now.
+ti chto tut delaesh
+eto profile dlya krooteeh
